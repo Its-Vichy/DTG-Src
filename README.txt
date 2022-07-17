@@ -1,3 +1,8 @@
+# EDIT: every skid on this community is reselling it and reposting so, there is the original repo.
+# If you want it, i will send free update (src closed) on http://generator.proxies.gay.
+# also: cringe guys reseller never run known how to run it LMFAO
+
+
 Enjoy skid.
 Another time when Discord and HCaptcha are getting rect by kid (like me), million $ compagny can't match SAME motionData as spammer.
 
